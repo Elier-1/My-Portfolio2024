@@ -38,5 +38,5 @@ Feel free to explore my projects section to see practical applications of my ski
 For any inquiries or collaborations, feel free to reach out:
 - **Email:** beatonmotion@gmail.com
 - **LinkedIn:** [Your LinkedIn Profile URL]
-- **Portfolio Website:** [Your Portfolio Website URL, if applicable]
+- **Portfolio Website:** [Coming soon]
 
